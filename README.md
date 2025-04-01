@@ -1,4 +1,4 @@
-The Front State is a new civics-oriented organization started after the 2024 US elections, with final acceptance that no matter who wins in reality most of us lose. This is not particularly newsworthy, as for decades government has increasingly worsened, even before the more *dramatic* modern times.
+[The Front State](https://frontstate.org) is a new civics-oriented organization started after the 2024 US elections, with final acceptance that no matter who wins in reality most of us lose. This is not particularly newsworthy, as for decades government has increasingly worsened, even before the more *dramatic* modern times.
 
 Its objective is a generational project to rethink how governance can work better, from the smallest neighborhood groups through to national governments and international organizations. Potentially this could be achieved by building a transparent state-like construct _in front_ of any current bureaucracy.
 
